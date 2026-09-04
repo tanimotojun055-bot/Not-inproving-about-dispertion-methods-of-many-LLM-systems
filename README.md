@@ -5,7 +5,7 @@
 
 ― 計算能力と知能の分離 ―
 
-White Bird / 重力軸研究所
+White Bird Dream/ 重力時空研究所
 
 1. はじめに
 
